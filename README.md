@@ -1,2 +1,0 @@
-# newbiee
-kontoll
